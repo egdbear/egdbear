@@ -1,1 +1,1 @@
-# Hi 👋,  I'm Dejan! 
+# 👋 I'm Dejan! 
